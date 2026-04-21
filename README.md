@@ -11,9 +11,9 @@
     <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=𒆙&color=2c82bf&style=italic" alt="mr-r1se" /> </p>
   
 <p align="center">
-  <a href="https://riseyrise.straw.page" target="_blank"><b>⌐╦ᡁ᠊╾━ strawpage</b></a>
+  <a href="https://riseyrise.straw.page" target="_blank"><b>⌐╦ᡁ᠊╾━ strawpage (will remake soon ughh)</b></a>
 &nbsp;
-   <a href="https://en.pronouns.page/@rise" target="_blank"><b>prnspage ⌯⁍</b></a>
+   <a href="https://en.pronouns.page/@rise" target="_blank"><b>pronouns.page ⌯⁍</b></a>
   <p align="center">
     $\color{#6e7d7b}{\textsf{𝘤𝘶𝘥𝘥𝘴 𝘦𝘯𝘤𝘰𝘶𝘳𝘢𝘨𝘦d}}$  
   <p align="center">
