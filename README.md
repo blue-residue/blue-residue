@@ -7,13 +7,13 @@
 
 
   <p align="center">
-     <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=🫆&color=2e2bd6&style=italic" alt="mr-r1se" /> </p>
+     <img src="https://komarev.com/ghpvc/?username=rise-by-rise&label=🫆&color=2e2bd6&style=italic" alt="mr-r1se" /> </p> 
           </p>
 
   
 <p align="center">
-  <a href="https://riseyrise.straw.page" target="_blank"><b>𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾 </b></a> 
-  <a href="https://lightstarved.straw.page" target="_blank"><b> . #2</b></a> 
+  <a href="https://riseyrise.straw.page" target="_blank"><b>𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾 </b></a>ㅤㅤㅤ
+  <a href="https://https://guns.lol/mr.rise" target="_blank"><b> 𝘴𝘩𝘰𝘳𝘵 𝘱𝘵 𝘪𝘯𝘧𝘰</b></a> 
   </p>
 
 <p align="center">
