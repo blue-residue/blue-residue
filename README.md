@@ -13,7 +13,7 @@
   
 <p align="center">
   <a href="https://riseyrise.straw.page" target="_blank"><b>𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾 </b></a>ㅤㅤㅤ
-  <a href=//https://guns.lol/mr.rise" target="_blank"><b> 𝘴𝘩𝘰𝘳𝘵 𝘱𝘵 𝘪𝘯𝘧𝘰</b></a> 
+  <a href="https://guns.lol/mr.rise" target="_blank"><b> 𝘴𝘩𝘰𝘳𝘵 𝘱𝘵 𝘪𝘯𝘧𝘰</b></a> 
   </p>
 
 <p align="center">
